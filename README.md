@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ojasthisisde
+- 👀 I’m interested in Development
+- 🌱 I learn anything that intrests me
+- 💞️ I’m looking to collaborate on almost everything
+- 📫 mail me at ojasthisside@gmail.com
